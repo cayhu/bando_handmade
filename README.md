@@ -1,1 +1,0 @@
-# bando_handmade
